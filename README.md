@@ -28,7 +28,7 @@ Although OpenAI released ChatGPT around two years ago, OpenAI was founded by Sam
 
 But, because Sam wasn’t motivated extrinsically but rather intrinsically, he managed to outcompete Google, which is insane if you ask me.  
 
-## THE NEXT BIG THING!
+## What is the next BIG THING?
 
 So, what is your heart telling you to do? Is it telling you to pick up that hobby that you have always wanted to? Or maybe that hobby that you picked up but abandoned for a while now?  
 
