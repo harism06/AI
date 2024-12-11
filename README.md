@@ -1,6 +1,6 @@
 # Illuminating Your Path
 
-## Just Hear Me Out...
+## Listen Up
 
 Artificial Intelligence is NOT the future.  
 
