@@ -1,12 +1,12 @@
 # Illuminating Your Path
 
-## Introduction
+## Just Hear Me Out...
 
 Artificial Intelligence is NOT the future.  
 
 I know, I probably sound crazy! But... hear me out. With the recent hype of AI, it’s seen as something that’s going to change the world for the better (or worse, who knows!) But history does repeat itself, and if we analyze technological trends of the past, we might just be able to predict the future.
 
-## Lessons from the Past: Cryptocurrency  
+## A Look in the Past
 
 Let’s take cryptocurrency for example. Bitcoin first launched in 2009. As of now, cryptocurrency is very popular and has already gone through its hype. But back then, buying the currency was very problematic because there was no platform that let you buy Bitcoin easily.  
 
@@ -16,7 +16,7 @@ The main reason he figured this out early was because he followed his heart. You
 
 And picking something up earlier definitely comes with its advantages. Brian’s company is now worth a whopping **40 billion dollars**! All because he followed his heart when he saw a vision. But besides the monetary value, I can guarantee you he has a sense of fulfillment doing it (after all, he has gone through an IPO).  
 
-## Applying It to Artificial Intelligence  
+## Tying it Together
 
 But enough about Bitcoin, let’s get back to the juicy part: **AI**.  
 
@@ -28,7 +28,7 @@ Although OpenAI released ChatGPT around two years ago, OpenAI was founded by Sam
 
 But, because Sam wasn’t motivated extrinsically but rather intrinsically, he managed to outcompete Google, which is insane if you ask me.  
 
-## What Is Your Heart Telling You?  
+## THE NEXT BIG THING!
 
 So, what is your heart telling you to do? Is it telling you to pick up that hobby that you have always wanted to? Or maybe that hobby that you picked up but abandoned for a while now?  
 
